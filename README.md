@@ -9,4 +9,4 @@
 
 ## Atividades :pencil::
 
-° Futuramente irei continuar trabalhando nele para agregar mais conhecimento que irei aprender.
+° Futuramente irei continuar trabalhando nele para agregar mais conhecimento que irei aprender...
